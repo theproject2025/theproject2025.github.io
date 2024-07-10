@@ -4,3 +4,4 @@
 - https://www.youtube.com/@TheProject2025
 - https://x.com/theproject2025
 - https://www.quora.com/What-is-Project-2025-and-how-could-it-impact-the-U-S-government-and-society-if-implemented/answer/The-Project-2025
+- https://www.quora.com/profile/The-Project-2025
